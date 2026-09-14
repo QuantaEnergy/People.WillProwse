@@ -20,7 +20,9 @@ https://www.youtube.com/@WillProwse
 - [The Real Reason Your LiFePO4 Battery Comes From China](https://youtu.be/f3QE8Kyc3Is)
 
 ### Design Flaw
-- [Battleborn Batteries 9 Year Test: You Won't Believe This..](
+#### Brand.Battleborn Batteries
+- [Battleborn Batteries 9 Year Test: You Won't Believe This..](https://youtu.be/5KCkl01uN5Q)
+- [Battleborn Batteries Lawsuit Update](https://youtu.be/Y7hqPAV0U_8)
 
 ## Solar
 - [Offgrid Solar Crash Course: Avoid FIRE and ELECTROCUTION! For Beginners or Experienced Users](https://youtu.be/3xsfiDTQvQM)
