@@ -9,6 +9,9 @@ https://www.youtube.com/@WillProwse
 ## Battery
 - [Top Budget 12V LFP Battery Tournament! Which One Will Win?!](https://youtu.be/i3SUTKFBjPU)
 
+### Configuration.
+- [My Reaction to Martin Johnson's "BEST Off-grid Battery Bank" Video 😬 Yikes!!](
+
 ### Lithium Iron Phosphate
 - [The Rules of LiFePO4: The 3 Most Common Causes of Failure and General Guidelines for Long Term Use](https://youtu.be/UbZiHzflKMY)
 - [LiFePO4 Charging Guidelines: What is 100%? What is 0%?! How to Balance??](https://youtu.be/K9Tfivf5bAI)
