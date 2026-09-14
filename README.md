@@ -14,4 +14,4 @@ https://www.youtube.com/@WillProwse
 - [LiFePO4 Charging Guidelines: What is 100%? What is 0%?! How to Balance??](https://youtu.be/K9Tfivf5bAI)
 
 ### China
-- [The Real Reason Your LiFePO4 Battery Comes From China](
+- [The Real Reason Your LiFePO4 Battery Comes From China](https://youtu.be/f3QE8Kyc3Is)
