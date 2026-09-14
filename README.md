@@ -18,3 +18,6 @@ https://www.youtube.com/@WillProwse
 
 ### China
 - [The Real Reason Your LiFePO4 Battery Comes From China](https://youtu.be/f3QE8Kyc3Is)
+
+## Solar
+- [Offgrid Solar Crash Course: Avoid FIRE and ELECTROCUTION! For Beginners or Experienced Users](
