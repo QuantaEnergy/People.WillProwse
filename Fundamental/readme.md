@@ -1,0 +1,2 @@
+- [Off-grid Solar for Dummies: Beginner Basics](
+- 
