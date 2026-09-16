@@ -1,0 +1,2 @@
+- [MPPT vs PWM: Fast comparison for off-grid solar](https://youtu.be/PB6zojol9o0)
+- [Off-grid Solar Myth Debunked and Explained: 2 or more Solar Charge Controllers + 1 Battery](https://youtu.be/rSj6-JSxoD4)

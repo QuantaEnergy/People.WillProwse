@@ -1,1 +1,0 @@
-- [MPPT vs PWM: Fast comparison for off-grid solar](https://youtu.be/PB6zojol9o0)
