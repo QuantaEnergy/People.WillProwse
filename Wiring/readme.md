@@ -1,2 +1,2 @@
-- [Current Sharing 101 w/ Large LiFePO4 Battery Banks](
-- 
+- [Current Sharing 101 w/ Large LiFePO4 Battery Banks](https://youtu.be/oXBT8lSC25M)
+- [
