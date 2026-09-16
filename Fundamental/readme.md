@@ -1,2 +1,2 @@
-- [Off-grid Solar for Dummies: Beginner Basics](
+- [Off-grid Solar for Dummies: Beginner Basics](https://youtu.be/fFHn_xoMsAs)
 - 
