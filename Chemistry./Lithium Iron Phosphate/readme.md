@@ -1,1 +1,2 @@
-- [The Rules of LiFePO4: The 3 Most Common Causes of Failure and General Guidelines for Long Term Use](
+- [The Rules of LiFePO4: The 3 Most Common Causes of Failure and General Guidelines for Long Term Use](https://youtu.be/UbZiHzflKMY)
+- [
